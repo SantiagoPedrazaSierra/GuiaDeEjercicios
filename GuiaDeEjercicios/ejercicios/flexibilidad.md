@@ -13,3 +13,9 @@ Instrucciones
 Comienza con un calentamiento suave de 5-10 minutos (como caminar o trotar ligeramente).
 Realiza los ejercicios de estiramiento (como estiramientos de piernas, espalda, brazos) durante 15-30 minutos.
 Mantén cada estiramiento entre 20-30 segundos y evita rebotes.
+
+Consejos
+
+Mantén una hidratación adecuada.
+No te exijas más de lo que tu cuerpo pueda manejar; los estiramientos deben sentirse cómodos, no dolorosos.
+Realiza estiramientos de manera controlada y lenta para evitar lesiones.
