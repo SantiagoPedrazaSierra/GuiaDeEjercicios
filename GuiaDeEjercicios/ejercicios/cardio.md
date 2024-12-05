@@ -23,3 +23,15 @@ Pedalea: Mantén una postura recta y pedalea a un ritmo constante.
 Intensidad: Puedes variar la velocidad o agregar resistencia para un desafío mayor.
 Enfriamiento: Termina con una pedaleada más suave y estira después.
 Recuerda escuchar a tu cuerpo y mantener una buena hidratación. ¡Disfruta del ejercicio!
+
+Consejos:
+Comienza despacio: Si eres nuevo en el ejercicio, empieza con sesiones cortas y aumenta la intensidad gradualmente.
+Mantén una buena postura: Asegúrate de que tu postura sea correcta para evitar lesiones. Por ejemplo, corre erguido, con los hombros relajados y no te encorves.
+Hidratación: Bebe agua antes, durante y después del ejercicio para mantenerte bien hidratado.
+Calentamiento y enfriamiento: Realiza siempre un calentamiento de 5-10 minutos y un enfriamiento para evitar lesiones.
+Usa el equipo adecuado: Si corres, usa zapatillas deportivas adecuadas para evitar lesiones en las articulaciones.
+Preocupaciones:
+Lesiones: Si no realizas el ejercicio de manera adecuada, puedes sufrir lesiones como esguinces, distensiones o problemas en las articulaciones.
+Sobreentrenamiento: No hagas cardio excesivamente intenso todos los días, ya que puede causar fatiga o lesiones por sobreuso.
+Problemas cardiovasculares: Si tienes algún problema de corazón o afección preexistente, consulta a un médico antes de comenzar un régimen de ejercicio cardio intenso.
+Deshidratación: No olvides hidratarte correctamente para evitar mareos o fatiga excesiva durante el ejercicio.
