@@ -1,0 +1,3 @@
+DESCRIPCION:
+
+El cardio es cualquier actividad física que aumenta el ritmo cardíaco y mejora la eficiencia del sistema cardiovascular. Algunos ejemplos de ejercicios cardiovasculares son correr, nadar, andar en bicicleta, saltar la cuerda o hacer aeróbicos. Estos ejercicios ayudan a mejorar la resistencia, quemar calorías y fortalecer el corazón. Son ideales para mejorar la salud general y la condición física.
