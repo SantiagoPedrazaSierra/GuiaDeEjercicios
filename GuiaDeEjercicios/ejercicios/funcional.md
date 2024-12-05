@@ -13,3 +13,8 @@ Instrucciones
 Comienza con un calentamiento de 5-10 minutos (pueden ser ejercicios de movilidad y estiramientos dinámicos).
 Realiza ejercicios funcionales (sentadillas, flexiones, lunges, saltos, entre otros) durante 20-40 minutos.
 Termina con un enfriamiento y estiramientos.
+
+Consejos
+Mantén una hidratación adecuada.
+Realiza los movimientos de forma controlada para evitar lesiones.
+Aumenta la intensidad gradualmente a medida que mejoras tu condición física.
