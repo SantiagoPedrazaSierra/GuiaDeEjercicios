@@ -7,3 +7,9 @@ Beneficios
 Mejora la capacidad cardiovascular.
 Ayuda a tonificar y fortalecer las piernas.
 Quema calorías y favorece la pérdida de peso.
+
+Instrucciones
+
+Comienza con un calentamiento de 5-10 minutos, pedaleando a un ritmo suave.
+Realiza la actividad durante al menos 30 minutos, manteniendo una velocidad constante que desafíe tu resistencia.
+Termina con un enfriamiento, pedaleando suavemente y estirando las piernas.
